@@ -1,0 +1,3 @@
+Fariz 
+Islamabad
+Meta
